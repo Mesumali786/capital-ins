@@ -1,2 +1,2 @@
-# Punjab-gov
-https://mesumali786.github.io/Punjab-gov/
+Capital Institute Of Technology
+https://mesumali786.github.io/capital-ins/
